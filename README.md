@@ -8,7 +8,7 @@ Engaged to be married.
 I have a Master's and Bachelor's degree in Mathematics from the greatest little University in the world: Georgia Southern University.
 GO EAGLES!!!
 
-I'm an avid sports with my two favorite teams being the Jacksonville Jaguars and the Portland Trailblazers. No there is no Geographical relationship with those two teams. 
+I'm an avid sports fan with my two favorite teams being the Jacksonville Jaguars and the Portland Trailblazers. No there is no geographical relationship with those two teams. 
 
 I have 3 cats (Gucci, Monkey, and Toby) and 2 dogs (Geoffrey and Charlie) both pit mixes. 
 
